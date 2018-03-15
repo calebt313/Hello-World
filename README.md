@@ -13,5 +13,4 @@ Yo me gusta computadora...
 
 
 
-
 ...I suck at spanish
